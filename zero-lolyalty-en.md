@@ -1,92 +1,102 @@
-# Никакой лояльности к работодателю!
+# Zero loyalty to the employer! 
+- [This is not your business!](#this-is-not-your-business)
+- [You are not friends.](#you-are-not-friends)
+- [Your main goal is to earn a living.](#your-main-goal-is-to-earn-a-living)
+- [Don't let them play on your ambitions](#your-main-goal-is-to-earn-a-living)
+- [Do only what you are paid for](#do-only-what-you-are-paid-for)
+- [Value your time](#value-your-time)
+- [Don't overdo it](#dont-overdo-it)
+- [Choose your interests](#choose-your-interests)
+- [Don't trust your bosses](#dont-trust-your-bosses)
+- [Don't leave them a penny](#dont-leave-them-a-penny)
+- [Keep sending out your resume](#keep-sending-out-your-resume)
+- [Show solidarity with your colleagues](#show-solidarity-with-your-colleagues)
 
-Ты приходишь на работу и видишь, что твой коллега куда-то исчез. «Он уволился», — уклончиво отвечает начальник, и ты понимаешь — не сам. Ошибся, не справился, перестал приносить прибыль — и ему предложили поискать другую работу. «Чего ты хочешь? Это капитализм!» — скажут многие. Это так, и раз мы живем при капитализме, придется признать: у нас, наемных работников, тоже есть свой интерес, и он в корне расходится с интересом работодателей.
+You come to work and see that your colleague is nowhere to be found. **_"He quit"_**, the boss evasively responds, and you understand - it wasn't his decision. He made a mistake, didn't perform well, stopped bringing in profits - and was offered to look for another job. _**"What do you want? This is capitalism!"**_ - many would say. That's true, and since we live under capitalism, we have to admit: as hired workers, we also have our own interests, which fundamentally conflict with the interests of employers.
 
-Прежде всего, никто не создает рабочие места из благотворительности. Ни один владелец предприятия не думает: «О, какой хороший человек! Дам-ка я ему заработать на жизнь». Единственная причина, по которой тебя нанимают — это деньги, которые ты приносишь. Собственник получает прибыль за счет разницы между тем, что ты реально заработал, и тем, что он тебе заплатил. Ты хочешь получать как можно больше: тебе надо питаться, платить за жилье, кормить и учить своих детей, развиваться и путешествовать. Он хочет платить тебе так мало, как только возможно.
+First and foremost, no one creates jobs out of charity. No business owner thinks, 
+**_"Oh, what a good person! Let me give them a job to make a living."_** The only reason you are hired is the money you bring in. The owner makes a profit by the difference between what you actually earn and what he pays you. You want to earn as much as possible: you need to eat, pay for housing, feed and educate your children, develop and travel. He wants to pay you as little as possible.
 
-Если на рынке есть человек, готовый выполнять твою работу не за 10, а за 4 тысячи, тебя уволят. Если тебя можно будет заменить машиной — тебя уволят. Если разразится кризис и отрасль полетит ко дну — тебя уволят. От тебя избавятся, как только ты перестанешь приносить прибыль. Если ты сильно заболеешь, забеременеешь, постареешь — они сделают все, чтобы не платить. Их не волнует, куда ты пойдешь. Это твоя проблема, а не работодателей. Им наплевать на твою жизнь. Ты не человек. Ты — то, что приносит деньги.
+If there's someone on the market willing to do your job for **4,000** instead of **10,000**, you'll be fired. If a machine can replace you - you'll be fired. If there's a crisis and the industry goes down - you'll be fired. They'll get rid of you as soon as you stop bringing in profits. If you get seriously ill, get pregnant, or get older - they'll do everything they can to avoid paying. They don't care where you'll go. It's your problem, not the employers'. They don't care about your life. You're not a human being. You're what brings in money.
 
-### _Помни: работодатели ни на секунду не забывают о своем интересе, так блюди же свой!_
+> **Remember:** _Employers never forget about their own interests, so you should protect yours too!_
 
-## _Как можно чаще повторяй эти принципы и рассказывай о них другим работникам:_
-___
+## Repeat these principles as often as possible and tell other employees about them:
 
-> - [Это не твое дело!](#Это не твое дело!) 
-> - Вы не друзья
-> - Твоя главная цель — заработать на жизнь
-> - Не позволяй играть на твоих амбициях
-> - Делай только то, за что платят
-> - Цени свое время
-> - Не слишком усердствуй
-> - Выбирай свои интересы
-> - Не доверяй начальникам
-> - Не оставляй им ни копейки
-> - Продолжай рассылать резюме
-> - Проявляй солидарность с коллегами
+## This is not your business!
+> Employers and bosses like to say: 
+> - This is our common business 
+> - We are one team 
+> - We are in the same boat 
+> - This is your project too
+> 
+> Every time you hear this nonsense, ask yourself: _"Am I making a profit?" No?_ 
+> Then it's not my business. You are a hired worker, not an equal partner. 
+> You sell your labor and time, so do only as much as needed to get the job done. 
+> _**Don't delude yourself**_.
 
+## You are not friends.
+> Sly employers always try to build _"human relationships"_ with employees. 
+> They ask about your health, children, hobbies, inquire about how you are coping with work, 
+> show sympathy. They go out to smoke with you, discuss internet jokes, and talk about their lives. 
+> In short, they do everything to make you believe that they are your good friends and forget about the true nature of your relationship. 
+> Why is this done? To say at the right moment, _"Oops, sorry, there won't be a salary this month, wait a bit,"_ or _"Stay for an hour, please."_
 
----
+> **Remember: _you are not friends, your sincere sympathy will be used against you._**
 
-## Это не твое дело!
-### Работодатели и всякие начальники очень любят говорить: 
-- «Это наше общее дело» 
-- «Мы — одна команда» 
-- «Мы в одной лодке» 
-- «Это и твой проект тоже» 
+## Your main goal is to earn a living.
+> You may enjoy what you do. 
+> Your job may be interesting and useful to society. 
+> But let's face it: most people, including you, likely work because they can't afford not to. 
+> The only reason you're not sitting at home with a book, traveling year-round, or doing what you've always dreamed of, is the need to earn a living. 
+> By glossing over this issue and playing on your love of work, employers pay you less. _"But you enjoy this work!"_.
 
-> Каждый раз, когда слышишь этот бред, спрашивай себя: «Получаю ли я прибыль?» Нет? Значит, это не мое дело. 
-Ты наемный работник, а не равный партнер. Ты продаешь свой труд и свое время, так что выкладывайся ровно настолько, насколько нужно, чтобы сделать работу. 
-Не тешь себя иллюзиями.
+> **Remember: _Your labor should always be paid, and paid well - even if under different circumstances you would do it for free._**
 
-## Вы не друзья
+## Don't let them play on your ambitions
+> Many employers identify ambitious employees and promise them promotions, monetary rewards, and huge prospects. 
+> They deliberately provoke competition in the team so that everyone works better, higher, faster. 
+> But every time you feel the desire to stand out, do more than the norm, outdo others... stop!
+> 
+> **Ask yourself:** 
+>  - _Am I sure that I will really be promoted?_ 
+>  - _Will this promotion lead to a salary increase?_ 
+>  - _Will he keep his promises?_ 
+>  - _Is it worth quarreling with colleagues for verbal praise?_ 
+>  - _Do you have any doubts?_ 
+> 
+> **Direct your energy elsewhere.**
 
-> Хитрые работодатели всегда стараются построить с работниками «человеческие отношения». Они интересуются твоим здоровьем, детьми, хобби, спрашивают, как ты справляешься с работой, проявляют сочувствие. Они выходят с тобой покурить, обсуждают интернет-шутки, рассказывают о своей жизни. Одним словом, делают все, чтобы ты поверил, что они — твои хорошие приятели, и забыл об истинной природе ваших отношений. Зачем это делается? Для того чтобы в нужный момент сказать: «Ой, прости, зарплаты в этом месяце не будет, подожди немного» или «Задержись на часок, пожалуйста». Помни: вы не друзья, твоя искренняя симпатия будет использована против тебя.
+## Do only what you are paid for
+> Employers don't want to hire a lot of people. It is much easier for them to put additional functions on those who are already working. "Help organize an event, call customers, take a letter to the post office on your way home." Is it not your responsibility? Try in every way to refuse additional work. Do you have another text, layout, cool idea? Bring it to someone who will pay for it or use it for yourself. Don't give away your labor.
 
-## Твоя главная цель — заработать на жизнь
+## Value your time
+> The workday is over - go home. The lunch break has started - do your own things. Don't let anyone steal a minute from you. Employers love to hire people for 8 hours but use them for all 10. Among them are those who call in the evenings, make you think about work on weekends, and demand your attention during vacations. _Stop this!_ 
+> 
+> **Remember: _Unpaid time is time that the employer has put in his pocket._**
 
-> Тебе может нравиться то, что ты делаешь. Твоя работа может быть интересной и полезной для общества. Но посмотри правде в глаза: большинство людей, и ты скорее всего в их числе, работают потому, что не могут себе позволить не работать. Единственная причина, по которой ты не сидишь дома с книгой, не путешествуешь круглый год или не делаешь то, о чем всегда мечтал, — это необходимость зарабатывать на жизнь. Замыливая этот вопрос, бесконечно играя на твоей любви к труду, работодатели платят тебе меньше. «Ведь тебе же самому нравится эта работа!» Твой труд всегда должен быть оплачен, и оплачен достойно — даже если в других обстоятельствах ты сделал бы это бесплатно.
+## Don't overdo it
+> Finished the task and ready to do more? Take a breath. Go online, have a coffee, smoke, chat with colleagues. Taking on more than required is not in your best interest. Don't chase after excellent results - there are no medals here. Don't propose ideas that will add more work for you - no one will likely pay for it. And never show that you have free time! Let your employer think that you are busy or slightly behind, rather than giving them a reason to give you additional work for free.
 
-## Не позволяй играть на твоих амбициях
+## Choose your interests
+> Every time you have a choice - to do something for work or for your own pleasure - choose yourself. Stay at work or go to English courses? Of course, go to courses! Answer a call during non-working hours or talk with a friend? With a friend, of course! Have a drink with friends or finish what you didn't have time for? Choose friends! Take a walk with your kids or dedicate your day off to an urgent request from your employer? Your kids are more important! And even during working hours: write a message to a friend, read an interesting article, study a foreign language a bit - or work? You know what to do.
 
-> Очень многие работодатели выделяют честолюбивых работников и обещают им повышение, денежное поощрение и огромные перспективы. Они намеренно провоцируют в коллективе конкуренцию, чтобы каждый работал лучше, выше, быстрей. Но всякий раз, когда у тебя возникает желание выделиться, сделать больше нормы, обогнать других… остановись! Спроси себя: «А уверен ли я, что меня и вправду повысят? Приведет ли это повышение к росту зарплаты? Выполнит ли он свои обещания? Стоит ли ссориться с коллегами ради словесной похвалы?» Есть хоть малейшие сомнения? Направь свою энергию в другое русло.
+## Don't trust your bosses
+> Most of the time, you don't communicate directly with the business owner. Sometimes you don't even see them. You talk to middle-level managers - at first glance, they are just like you, employees. Your boss may be an excellent specialist and even a great person, they may have hobbies, children, friends, pay for an apartment, and save for a vacation. But! They were hired to make you work as much as possible. They will ask you to stay for an extra half-hour, manipulate your ambitions, and beg you not to quit or demand your salary. Don't trust your boss. This person is not on your side.
 
-## Делай только то, за что платят
+## Don't leave them a penny
+> This especially applies to those who are unofficially employed. Employers often say they have no money to pay you. They hope that you will give up and go look for another job, while they pocket your money. Don't let that happen! Fight for every penny! And remember, if your employer doesn't pay you, they are breaking the law, so you have every moral right to act outside the law. Don't hesitate to use blackmail and threats. Every time you spend your savings, desperately call your parents or ask friends for a loan, someone is saving up for a new car. Vacation homes are being built, yachts are being bought, and fortunes are being made at the expense of naive workers who cried and left.
+## Keep sending out your resume
+> Today you have a job. Maybe a good one and you are paid above average in the market. But that doesn't mean you'll have it tomorrow. The slightest crisis, "cost optimization," downsizing — and you'll be fired. Therefore, you should always have backup options. Go to interviews. Improve your qualifications (preferably during working hours). And don't be afraid to quit often — you don't owe anyone anything here.
 
-> Работодатели не хотят нанимать много людей. Им гораздо проще взваливать дополнительные функции на тех, кто уже работает. «Помоги организовать мероприятие, обзвони клиентов, отнеси на почту письмо по дороге домой». Это не твои обязанности? Постарайся всеми способами отказаться от дополнительной работы. У тебя есть еще один текст, макет, классная идея? Отнеси тому, кто за это заплатит или используй для себя. Не дари свой труд.
+## Show solidarity with your colleagues
+> - Is your colleague late? - _"He was just here - he left."_ 
+> - Is someone not coping? - _"I don't know, he seems to be doing a great job."_ 
+> - Cover and protect each other. Fighting against the employer together is easier. The more people you can involve, the more decisive and effective your struggle will be. 
+> - Demand payment of your wages — in full and on time, even if you are unofficially employed. 
+> - Demand normal working conditions. 
+> - Demand the removal of an insolent director. 
+> - Demand a pay raise. 
+> - Create a union and put pressure on the employer.
 
-## Цени свое время
-
-> Рабочий день закончился — иди домой. Начался обеденный перерыв — займись своими делами. Не позволяй украсть у тебя ни минуты. Работодатели любят нанимать людей на 8 часов, а использовать все 10. Среди них попадаются и такие, кто звонит по вечерам, заставляет думать о работе в выходные, требует твоего внимания во время отпуска. Пресекай это! Помни: неоплаченное время — это время, которое работодатель положил себе в карман.
-
-## Не слишком усердствуй
-
-> Закончил задание и готов сделать еще? Выдохни. Зайди в интернет, выпей кофе, покури, поболтай с коллегами. Брать на себя больше, чем требуется — не в твоих интересах. Не гонись за отличным результатом — здесь медалей не дают. Не предлагай идей, которые добавят тебе работы — вряд ли кто-то ее оплатит. И никогда не показывай, что у тебя есть свободное время! Пусть лучше твой работодатель думает, что ты загружен или слегка тормозишь, чем подкинет тебе бесплатной нагрузки.
-
-## Выбирай свои интересы
-
-> Всякий раз, когда у тебя есть выбор — сделать что-то для работы или для собственного удовольствия — выбирай себя. Задержаться на работе или пойти на курсы английского? Конечно, курсы! Ответить на звонок в нерабочее время или поговорить с подругой? С подругой, само собой! Выпить с друзьями или доделать то, что не успел? Выбирай друзей! Погулять с детьми или посвятить выходной срочной просьбе работодателя? Твои дети важнее! И даже в рабочее время: написать сообщение другу, почитать интересную статью, немного поучить иностранный язык — или поработать? Ты знаешь, что делать.
-
-## Не доверяй начальникам
-
-> Чаще всего ты не общаешься напрямую с владельцем предприятия. Порой ты даже его не видишь. С тобой говорят начальники среднего звена — на первый взгляд такие же работники, как и ты. Твой начальник может быть отличным специалистом и даже прекрасным человеком, у него тоже могут быть хобби, дети, друзья, он может платить за квартиру и копить на отпуск. Но! Его наняли для того, чтобы заставить тебя работать как можно больше. Это он будет просить тебя задержаться на полчасика, это он будет манипулировать твоими амбициями, это он будет умолять тебя не увольняться и не требовать зарплату. Не доверяй своему начальнику. Этот человек играет не на твоей стороне.
-
-## Не оставляй им ни копейки
-
-> Особенно это касается неофициально трудоустроенных. Работодатели часто говорят, что у них нет денег тебе заплатить. Они надеются, что ты утрешь сопли и пойдешь искать другую работу, а твои деньги они положат к себе в карман. Не допускай такого! Борись за каждую копейку! И помни: не заплатив тебе, твой работодатель жестко поимел закон, так что ты имеешь полное моральное право действовать не по закону. Не пренебрегай шантажом и угрозами. Каждый раз, когда ты тратишь свои сбережения, в отчаянии звонишь родителям или просишь друзей занять, кое-кто откладывает на новую машину. За счет наивных работников, которые поплакали и ушли, строятся дачи, покупаются яхты и делаются состояния.
-
-## Продолжай рассылать резюме
-
-> Сегодня у тебя есть работа. Возможно, неплохая и платят тебе выше, чем в среднем по рынку. Но это совершенно не значит, что она будет у тебя завтра. Малейший кризис, «оптимизация расходов», сокращение — и тебя выгонят. Поэтому ты всегда должен иметь запасные варианты. Ходи на собеседования. 
-Повышай свою квалификацию (желательно в рабочее время). 
-И не бойся часто увольняться — ты здесь никому ничего не должен.
-
-## Проявляй солидарность с коллегами
-
-- Твой коллега опаздывает? - «Только что был — вышел». 
-- Кто-то не справляется? - «Не знаю, по-моему, он отлично работает». 
-- Прикрывайте и защищайте друг друга. Вместе бороться против работодателя проще. Чем больше людей ты сможешь подключить, тем решительнее и эффективнее будет ваша борьба. 
-- Требуйте выплаты зарплаты — полностью и вовремя, даже если вы неофициально трудоустроены. 
-- Требуйте нормальных условий труда. 
-- Требуйте смещения обнаглевшего директора. 
-- Требуйте повышения зарплаты. 
-- Создавайте профсоюз и давите на работодателя.
+![zero-lolyalty-en.jpg](assets%2Fzero-lolyalty-en.jpg)

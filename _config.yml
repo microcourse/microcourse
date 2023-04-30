@@ -1,0 +1,10 @@
+﻿plugins:
+  - jekyll-relative-links
+relative_links:
+  enabled: true
+  collections: true
+include:
+  - README.md
+  - zero-lolyalty-en.md
+  - zero-lolyalty-ru.md
+  
