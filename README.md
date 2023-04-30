@@ -1,9 +1,10 @@
 ### Hi there 👋
-
+[Pickabu](https://pikabu.ru/story/nikakoy_loyalnosti_k_rabotodatelyu_9865358)
+<a href="https://pikabu.ru/story/nikakoy_loyalnosti_k_rabotodatelyu_9865358">Pikabu</a>
 <!--
 **microcourse/microcourse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-[Pickabu](https://pikabu.ru/story/nikakoy_loyalnosti_k_rabotodatelyu_9865358)
+
 
 Here are some ideas to get you started:
 
